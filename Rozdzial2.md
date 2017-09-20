@@ -5,5 +5,6 @@ Rozpoczęła się przerwa.  A do wakacji daleko...
 Jednak nie tylko odległa perspektywa wakacji ciążyła Tosi na sercu. Ostatnio wysłała krzyzowke i niecierpliwie czekala na wynik konkursu.
 - Tosiu ! wygralas - zadzwonila mama.
 Dziewczynka zatanczyla z radosci
+-Hurra! 
 
-
+Cieszyla sie bardzo, bo wygrala wycieczke do DisneyLandu, o ktorej marzyla
